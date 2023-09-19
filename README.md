@@ -12,5 +12,4 @@ Vinicius.censi.cordeira@escola.pr.gov.br
 
 @vinicin-da-150
 
-!{}![image](https://github.com/vinicius0408/vinicius040/assets/142280385/dde9d518-3417-4e0c-a594-e068138cf22b)
-
+![](https://tenor.com/pt-BR/view/lol-hahaha-lmao-mike-tyson-laughing-hard-gif-5892980)
